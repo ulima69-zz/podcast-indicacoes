@@ -19,7 +19,7 @@ Reunião das indicações feitas em alguns podcasts
   - Tempos difíceis – Charles Dickens - https://amzn.to/2RQtDb0
   - Sex Therapy (Netflix) - https://www.netflix.com/br-en/title/80197526
   - Fluxo - https://www.catarse.me/mantenha_o_fluxo
-  - Agência Pública
+  - Agência Pública - @agenciapublica no Twitter
   - Ponte - https://www.catarse.me/construa_ponte
   - The Intercept Brasil - https://www.catarse.me/intercept
   - Revista Forúm - https://apoie.me/forumbrasilia
@@ -46,6 +46,23 @@ Reunião das indicações feitas em alguns podcasts
 ## Semana 2 :: 7 a 13 de Janeiro
 
 ## Semana 1 :: 1 a 6 de Janeiro
+
+- Pistolando
+  - Documentário: Estamira (Marcos Prado, 2006) - http://www.zazen.com.br/estamira2/
+  - Animação: Wall-E (Andrew Stanton, 2008) - https://www.imdb.com/title/tt0910970/
+  - Aplicativo: Cataki - http://www.cataki.org/
+  - Site: Pimp My Carroça - http://pimpmycarroca.com/
+  - Livro: Sustentabilidade. Canibais com garfo e faca (John Elkington) - https://amzn.to/2sLaGHD
+  - Livro: CARtoons (Andy Singer) - https://amzn.to/2FQiznG
+  - Animação: Story of Stuff - https://storyofstuff.org/
+  - Livro: A Sexta Extinção (Elizabeth Kolbert) - https://amzn.to/2UfZVJ2
+  - Animação: Shaun the Sheep (Netflix) - https://www.netflix.com/it-en/title/70155567
+  - Episódio Futurama: O Mal do Século XX [link](http://futuramaoficial.blogspot.com/2011/01/8-um-grande-pedaco-de-lixo.html)
+  - Podcast: As Desqualificadas - http://www.central3.com.br/category/podcasts/desqualificadas/
+  - Documentário: George Michael: Freedom - https://globosatplay.globo.com/bis/v/6231077/
+  - Jogo para Celular: Peter Panic! [Android](https://play.google.com/store/apps/details?id=com.turner.peterpanicgame&hl=pt) e [iTunes](https://itunes.apple.com/br/app/peter-panic/id1058602106?mt=8) 
+
+ 
 
 
 
