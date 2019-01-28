@@ -5,6 +5,17 @@ Reunião das indicações feitas em alguns podcasts
 
 ## Semana 4 :: 21 a 27 de Janeiro
 
+### NBW
+  - Black Sheep - https://www.youtube.com/watch?v=A-Y5zvnDxsI
+  - Les Miserables - https://www.youtube.com/watch?v=isQGHwWyJ6k
+  - Claudia Andujar – a luta Yanomami - https://ims.com.br/exposicao/claudia-andujar-a-luta-yanomami-ims-paulista/
+
+- Mamilos
+  - O Método Kominsky - https://www.netflix.com/br/title/80201680
+  - De Amor e de Trevas - http://www.adorocinema.com/filmes/filme-126361/
+    - Baseado no livro De amor e trevas -Amós Oz - https://amzn.to/2RRHiP5
+  - Nasce uma estrela - http://www.adorocinema.com/filmes/filme-173109/criticas-adorocinema/
+
 - Xadrez Verbal
   - Site da Editora Contexto - https://editoracontexto.com.br/
   - Filme Argo - https://www.imdb.com/title/tt1024648/
@@ -13,6 +24,11 @@ Reunião das indicações feitas em alguns podcasts
 
 
 ## Semana 3 :: 14 a 20 de Janeiro
+
+- NBW
+  - Field of Vision – Dancing with Le Pen - https://www.youtube.com/watch?v=9kPA_rgCX6Y&feature=youtu.be
+  - Claudia Andujar – a luta Yanomami - https://ims.com.br/exposicao/claudia-andujar-a-luta-yanomami-ims-paulista/
+  - Children of time - https://g.co/kgs/f1hPrW
 
 - Pistolando
   - Desafio de leitura de As Desqualificadas - https://www.instagram.com/asdesqualificadas/
@@ -37,6 +53,14 @@ Reunião das indicações feitas em alguns podcasts
   - Livro infantil: Rinocerontes não comem panquecas – Anna Kemp e Sara Ogylvie - https://amzn.to/2TgisVJ
   - Corações Sujos (2001; IMDB) - https://www.imdb.com/title/tt1653653/
   - O Porco Filósofo – Julian Baggini - https://amzn.to/2S3RKCj
+  
+ - NBW
+  - BBC – Adam Curtis – HyperNormalisation - https://www.bbc.co.uk/programmes/p04b183c
+  - Yanis Varoufakis – The Euro Has Never Been More Problematic - https://www.youtube.com/watch?v=rhSg9X3q2gc
+  - Steve Bannon – Full Address and Q&A - https://www.youtube.com/watch?v=8AtOw-xyMo8&feature=youtu.be
+  - Brexit: The Uncivil War - https://www.youtube.com/watch?v=Nw0dfe0F-5c
+  - Todos já sabem - https://www.youtube.com/watch?v=ITp9IvuS6Tk
+  - Black Mirror: Bandersnatch - https://www.youtube.com/watch?v=Nw0dfe0F-5c
 
 - Xadrez Verbal
   - Site da Editora Contexto - https://editoracontexto.com.br/
