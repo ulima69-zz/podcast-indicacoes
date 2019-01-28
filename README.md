@@ -78,6 +78,19 @@ Reunião das indicações feitas em alguns podcasts
 
 ## Semana 2 :: 7 a 13 de Janeiro
 
+#### NBW
+
+- A Guerra: a ascensão do PCC e o mundo do crime no Brasil - https://amzn.to/2Tjmpc6
+- Memórias de um sobrevivente - https://amzn.to/2WmGBf4
+- Can You Ever Forgive Me - https://www.youtube.com/watch?v=gkQhNqJzM14
+- The Romanoffs - https://www.youtube.com/watch?v=Y2qWLttWvYI
+- Homecoming - https://www.youtube.com/watch?v=kbnRPItgpLA
+- Roma - https://www.youtube.com/watch?v=FkzidhAg45U
+- Infiltrado na Klan - https://www.youtube.com/watch?v=ie339j2Qeog
+- Fahrenheit 451 - [link](https://www.audible.com/membergiving-lp?senderCustomerId=A2UBP9EW2O84CM&action_code=MGPGBWS0903140001&externalId=FTLRHY4FY8XYX&source_code=MGPGBWS0903140001&emailType=LANDING_VIEW&context=membergiving)
+- Caminhando com Tim Tim - https://youtu.be/UU5-hkBH2rw
+- Nando Reis – O que é o “Segundo Sol” - https://www.youtube.com/watch?v=L2bfWcISW6I&feature=youtu.be
+
 ## Semana 1 :: 1 a 6 de Janeiro
 
 #### Pistolando
