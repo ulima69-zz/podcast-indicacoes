@@ -5,18 +5,21 @@ Reunião das indicações feitas em alguns podcasts
 
 ## Semana 4 :: 21 a 27 de Janeiro
 
-### NBW
+#### NBW
+
   - Black Sheep - https://www.youtube.com/watch?v=A-Y5zvnDxsI
   - Les Miserables - https://www.youtube.com/watch?v=isQGHwWyJ6k
   - Claudia Andujar – a luta Yanomami - https://ims.com.br/exposicao/claudia-andujar-a-luta-yanomami-ims-paulista/
 
-- Mamilos
+#### Mamilos
+
   - O Método Kominsky - https://www.netflix.com/br/title/80201680
   - De Amor e de Trevas - http://www.adorocinema.com/filmes/filme-126361/
     - Baseado no livro De amor e trevas -Amós Oz - https://amzn.to/2RRHiP5
   - Nasce uma estrela - http://www.adorocinema.com/filmes/filme-173109/criticas-adorocinema/
 
-- Xadrez Verbal
+#### Xadrez Verbal
+
   - Site da Editora Contexto - https://editoracontexto.com.br/
   - Filme Argo - https://www.imdb.com/title/tt1024648/
   - Filme Abril Despedaçado - https://www.imdb.com/title/tt0291003
@@ -25,12 +28,14 @@ Reunião das indicações feitas em alguns podcasts
 
 ## Semana 3 :: 14 a 20 de Janeiro
 
-- NBW
+#### NBW
+
   - Field of Vision – Dancing with Le Pen - https://www.youtube.com/watch?v=9kPA_rgCX6Y&feature=youtu.be
   - Claudia Andujar – a luta Yanomami - https://ims.com.br/exposicao/claudia-andujar-a-luta-yanomami-ims-paulista/
   - Children of time - https://g.co/kgs/f1hPrW
 
-- Pistolando
+#### Pistolando
+
   - Desafio de leitura de As Desqualificadas - https://www.instagram.com/asdesqualificadas/
   - A sociedade literária e a torta de casca de batata – Mary Ann Schaffer - https://amzn.to/2TeUU3h
   - A sociedade literária e a torta de casca de batata - https://www.netflix.com/br/title/80223371
@@ -54,7 +59,8 @@ Reunião das indicações feitas em alguns podcasts
   - Corações Sujos (2001; IMDB) - https://www.imdb.com/title/tt1653653/
   - O Porco Filósofo – Julian Baggini - https://amzn.to/2S3RKCj
   
- - NBW
+#### NBW
+
   - BBC – Adam Curtis – HyperNormalisation - https://www.bbc.co.uk/programmes/p04b183c
   - Yanis Varoufakis – The Euro Has Never Been More Problematic - https://www.youtube.com/watch?v=rhSg9X3q2gc
   - Steve Bannon – Full Address and Q&A - https://www.youtube.com/watch?v=8AtOw-xyMo8&feature=youtu.be
@@ -62,7 +68,8 @@ Reunião das indicações feitas em alguns podcasts
   - Todos já sabem - https://www.youtube.com/watch?v=ITp9IvuS6Tk
   - Black Mirror: Bandersnatch - https://www.youtube.com/watch?v=Nw0dfe0F-5c
 
-- Xadrez Verbal
+#### Xadrez Verbal
+
   - Site da Editora Contexto - https://editoracontexto.com.br/
   - Livro Como Curar um Fanático, de Amós Oz - https://amzn.to/2FReQq5
   - Livro La Patagonia Rebelde, de Osvaldo Bayer - https://amzn.to/2WjP1Uy
@@ -73,7 +80,8 @@ Reunião das indicações feitas em alguns podcasts
 
 ## Semana 1 :: 1 a 6 de Janeiro
 
-- Pistolando
+#### Pistolando
+
   - Documentário: Estamira (Marcos Prado, 2006) - http://www.zazen.com.br/estamira2/
   - Animação: Wall-E (Andrew Stanton, 2008) - https://www.imdb.com/title/tt0910970/
   - Aplicativo: Cataki - http://www.cataki.org/
