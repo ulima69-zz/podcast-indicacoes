@@ -3,6 +3,17 @@
 # Posdcast Indicações 2019
 Reunião das indicações feitas em alguns podcasts
 
+## Semana 5 :: 28/01 a 03/02
+
+### Pistolando - 20190201
+
+  - Propagandas – uma análise estrutural - Jacques Ellul - https://amzn.to/2DP6htA
+  - Documentário: City of Joy (2018, Netflix) - https://www.netflix.com/br/title/80203094
+  - Podcast: Boa noite internet – episódio Você não é seu crachá - http://www.boanoiteinternet.com.br/2018/12/09/002-voce-nao-e-seu-cracha/
+  - Livro: Wool – Hugh Howey - https://amzn.to/2HJvbi3
+  - Filme: Hereditário (2018) - https://www.youtube.com/watch?v=Lt9QCYRNvGg
+  - Jogo: Munchkin - https://www.galapagosjogos.com.br/produtos/munchkin
+  
 ## Semana 4 :: 21 a 27 de Janeiro
 
 #### NBW
