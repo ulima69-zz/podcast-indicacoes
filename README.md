@@ -3,7 +3,22 @@
 # Posdcast Indicações 2019
 Reunião das indicações feitas em alguns podcasts
 
+## Semana 6 :: 04/02 a 10/02
+
+### Viracasadas - 20190205
+
+  - Artigo "As mortes no campo e a operação greenwashing do "agro": invisibilização de danos sociais massivos no Brasil" – de Marília De Nardin Budó, publicado na Revista InSURgência - http://periodicos.unb.br/index.php/insurgencia/article/view/19723/18188
+  - Black Earth Rising - https://www.imdb.com/title/tt7660730/
+
+
+
 ## Semana 5 :: 28/01 a 03/02
+
+### Viracasacas - 20190129
+
+  - True Detective – https://www.hbo.com/true-detective
+  - Justiceiro – https://www.netflix.com/br/title/80117498
+  - Green Book – http://www.adorocinema.com/filmes/filme-256661/
 
 ### Xadrez Verbal - 20190201
 
