@@ -5,6 +5,19 @@ Reunião das indicações feitas em alguns podcasts
 
 ## Semana 5 :: 28/01 a 03/02
 
+### Xadrez Verbal - 20190201
+
+  - Editora Contexto - https://editoracontexto.com.br/
+  - Filme La Bamba - https://www.imdb.com/title/tt0093378/
+  - Filme Soul of the Game - https://youtu.be/LiDULxPh0hU
+  - Filme 42 - https://www.imdb.com/title/tt0453562/
+  - Documentário Get me Roger Stone - https://www.netflix.com/title/80114666
+  - Hotsite Brexit: How did my MP vote on the amendments? - https://www.bbc.com/news/uk-politics-47033979
+  - O Brasil entre a América e a Europa, de Luís Cláudio Villafañe G. Santos - https://amzn.to/2t8BYrv
+  - Texto US should go big on Brazil, de Marco Rubio - https://edition.cnn.com/2019/01/29/opinions/us-should-go-big-on-brazil-rubio
+  - Kissinger e o Brasil, de Matias Spektor - https://amzn.to/2MOl9LJ
+  - 18 dias, de Matias Spektor - https://amzn.to/2MVcCGU
+
 ### Pistolando - 20190201
 
   - Propagandas – uma análise estrutural - Jacques Ellul - https://amzn.to/2DP6htA
