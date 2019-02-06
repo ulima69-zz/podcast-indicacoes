@@ -33,7 +33,7 @@ Reunião das indicações feitas em alguns podcasts
   - Kissinger e o Brasil, de Matias Spektor - https://amzn.to/2MOl9LJ
   - 18 dias, de Matias Spektor - https://amzn.to/2MVcCGU
 
-### Pistolando - 20190201
+### 2019-02-01 - Pistolando #017 – Firehosing
 
   - Propagandas – uma análise estrutural - Jacques Ellul - https://amzn.to/2DP6htA
   - Documentário: City of Joy (2018, Netflix) - https://www.netflix.com/br/title/80203094
