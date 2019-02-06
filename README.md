@@ -5,7 +5,7 @@ Reunião das indicações feitas em alguns podcasts
 
 ## Semana 6 :: 04/02 a 10/02
 
-### Viracasadas - 20190205
+### Viracasacas - 20190205
 
   - Artigo "As mortes no campo e a operação greenwashing do "agro": invisibilização de danos sociais massivos no Brasil" – de Marília De Nardin Budó, publicado na Revista InSURgência - http://periodicos.unb.br/index.php/insurgencia/article/view/19723/18188
   - Black Earth Rising - https://www.imdb.com/title/tt7660730/
